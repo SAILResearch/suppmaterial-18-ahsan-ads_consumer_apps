@@ -1,0 +1,1 @@
+[Sample Understand projects for apps that use a scattered strategy] (https://drive.google.com/drive/folders/1yX0o6gNFaxlcY4VKdnvOG9xSUbejposq?usp=sharing)

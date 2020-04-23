@@ -1,0 +1,1 @@
+[Sample understand projects for apps that use external-mediation strategy] (https://drive.google.com/drive/folders/1PNc9-MMxyr6F4_U1rwF5YvzwSYfoZUw3?usp=sharing)

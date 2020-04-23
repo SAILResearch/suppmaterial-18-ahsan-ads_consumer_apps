@@ -1,0 +1,1 @@
+[Sample Understand projects for apps that use a self-mediation strategy] (https://drive.google.com/drive/folders/1bsZCu1kJ_IxR_QCX_-pDLCzWPpvhHExs?usp=sharing)
